@@ -17,4 +17,4 @@
 ![image](https://raw.githubusercontent.com/name0001/yinhexili/master/IMG_2507.JPG)
 ![image](https://raw.githubusercontent.com/name0001/yinhexili/master/IMG_2511.JPG)
 ![image](https://raw.githubusercontent.com/name0001/yinhexili/master/IMG_2512.JPG)
-![image](https://raw.githubusercontent.com/name0001/yinhexili/master/IMG_2513.JPG)
+![image](https://raw.githubusercontent.com/name0001/yinhexili/master/IMG_2513.JPEG)
